@@ -1,4 +1,4 @@
-## Hi there 🤙 Saya Hafizh Nursalim (Grevent) 👨‍💻
+## Hi there 🤙 Saya Hafizh Nursalim (Grevent) 👨‍💻👾
 
 Hafizh Nursalim merupakan mahasiswa semester 7 dengan berbagai pengalaman dan ketertarikan terhadap bidang Matematika, Statistika, Artificial Intelligence (AI), Machine Learning (ML), Intelligent System, Cyber Security, serta pemrograman dan penulisan konten yang mencakup editing dan proofreading tulisan. Saya aktif berpartisipasi dalam berbagai kegiatan workshop, pelatihan, kompetisi, organisasi, serta pengalaman kerja untuk meningkatkan technical skills dan kemampuan sosial saya. Saya memiliki rasa ingin tahu yang mendalam terhadap teknologi dan kemampuan analisis informasi yang saya kembangkan melalui berbagai pertanyaan yang muncul dari informasi yang saya temui. Saya ikut serta membagikan hasil eksplorasi dan pembelajaran saya melalui artikel di platform Medium dan juga program beserta penjelasannya pada platform Github. Saya siap untuk terus berkembang dan memberikan kontribusi kepada perusahaan.
 
